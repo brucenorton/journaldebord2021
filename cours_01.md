@@ -16,4 +16,4 @@ I chose MGAA, not to be confused with MAGA, because I love movement.
 
 Plus I love creating stuff. Come check some stuff out at [Micromedia](https://micromedia.vanier.college/)
 
-![lac georges](Images/lac_georges.jpg)
+![lac georges](Images/lac_georges-3148.jpg)
